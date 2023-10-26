@@ -4,4 +4,4 @@ Dashboard link - https://public.tableau.com/shared/F3JYRCSY3?:display_count=n&:o
 
 story link- https://public.tableau.com/views/book1IACP/Story1?:language=en-US&publish=yes&:display_count=n&:origin=viz_share_link
 
-video demonstration link-
+video demonstration link-https://youcutapp.page.link/BestEditor
